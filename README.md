@@ -1,0 +1,2 @@
+# mzfcdz
+Daily digest notes
